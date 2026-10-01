@@ -1,4 +1,4 @@
-Ik heb openings-act voor de JOTAJOTI bedacht: Physical Digital (van handgebaren naar digitale berichten.
+Ik heb openings-act voor de JOTAJOTI bedacht: Physical Digital (van handgebaren naar digitale berichten).
 
 Deze pagina vraagt toegang tot je camera en met handgebaren kun je zo de opening van de JOTAJOTI realiseren.
 
